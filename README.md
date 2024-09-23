@@ -1,2 +1,2 @@
-# new-code-to-my-webssite
+# new-code-to-my-website
 HELLO ITS me GARVIT WELCOME TO MY GITHUB ACCOUNT
